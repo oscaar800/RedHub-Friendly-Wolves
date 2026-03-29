@@ -16,3 +16,7 @@ Bring life and a deeper connection to nature into your server with this unique i
 Create a more alive, spiritual, and unique experience for your players.
 
 🔥 **Connect with nature like never before.**
+
+PREVIEW VIDEO: https://youtu.be/I3UF_jszxRo
+
+TEBEX: https://redhub.tebex.io/category/redm-scripts
