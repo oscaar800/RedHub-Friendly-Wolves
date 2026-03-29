@@ -1,6 +1,5 @@
-**ENGLISH**
 
-🐺 **RedHub Friendly Wolves** 🐺
+**RedHub Friendly Wolves** 
 
 Bring life and a deeper connection to nature into your server with this unique interactive wolf system. Perfect for enhancing immersion and roleplay in your RedM experience.
 
